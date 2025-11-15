@@ -3,6 +3,9 @@
  LAST UPDATED: 16/10/2025
 
 <p align="center">
+ 
+# [802 pp](https://drive.google.com/file/d/1bOxhP75_uJimVh1hE0lvkhS258NBFdNy/view?usp=sharing)
+![screenshot669](https://i.imgur.com/qRCvuRO.png)
 
 # [STELLERINO EDIT V1.2](https://drive.google.com/file/d/1xUjgw3OplnAmbfiQrc64nEo351qO08fG/view?usp=drive_link)
 ![screenshot669](https://i.imgur.com/4uzbOJ4.jpeg)
