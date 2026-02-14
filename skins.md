@@ -1,11 +1,14 @@
 # PLOXARU SKIN HISTORIAL 
 
- LAST UPDATED: 16/10/2025
+ LAST UPDATED: 13/02/2026
 
 <p align="center">
 
+# [wat 2.3](https://drive.google.com/file/d/1rjEdjcMvS5GJ6o-kBZlAKYKNgNu8tza8/view?usp=sharing)
+![screenshot669](https://i.imgur.com/Dt6SnRw.jpeg)
+
 # [wat](https://drive.google.com/file/d/1EtA-U6w7ibIcdOVASB8VoYeuKm-Nzg4_/view?usp=drive_link)
-actual dt skin
+ ![screenshot669](https://i.imgur.com/TLcDDs1.jpeg)
  
 # [802 pp](https://drive.google.com/file/d/1bOxhP75_uJimVh1hE0lvkhS258NBFdNy/view?usp=sharing)
 ![screenshot669](https://i.imgur.com/qRCvuRO.png)
