@@ -4,6 +4,10 @@
 
 <p align="center">
 
+ # [wat 2.4](https://drive.google.com/file/d/1BYD9_KqiNiZZb0wykxdWFa3VoGrtgx27/view?usp=sharing)
+![screenshot669](https://i.imgur.com/TLcDDs1.jpeg)
+(actual one need to update ss)
+
 # [wat 2.3](https://drive.google.com/file/d/1rjEdjcMvS5GJ6o-kBZlAKYKNgNu8tza8/view?usp=sharing)
 ![screenshot669](https://i.imgur.com/Dt6SnRw.jpeg)
 
