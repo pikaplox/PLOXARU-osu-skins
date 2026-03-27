@@ -1,8 +1,12 @@
 # PLOXARU SKIN HISTORIAL 
 
- LAST UPDATED: 13/02/2026
+ LAST UPDATED: 27/03/2026
 
 <p align="center">
+
+ # [wat NO SE](https://drive.google.com/file/d/1NK8L4IjJ1pgAH1EmTjhGkGd2QM5xdMoU/view?usp=sharing)
+![screenshot669]()
+(NO SS LATEST SKIN)
 
  # [wat 2.4](https://drive.google.com/file/d/1BYD9_KqiNiZZb0wykxdWFa3VoGrtgx27/view?usp=sharing)
 ![screenshot669](https://i.imgur.com/TLcDDs1.jpeg)
